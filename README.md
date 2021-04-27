@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @julioaze
 - 👀 I’m interested in learning and sharing knowledge
 - 🌱 I'm always looking to learn something new
-- 💞️ I’m looking to collaborate on ...
 
 
 
